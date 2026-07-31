@@ -46,7 +46,7 @@ https://benjamina-mbaki.github.io/Benjamina/
 
 **Benjamina Mbaki**
 
-- GitHub: https://github.com/Benjamin-Mbaki
+- GitHub: https://github.com/Benjamina-Mbaki
 - LinkedIn: https://www.linkedin.com/in/benjamina-mbaki-9ba046356/
 
 Thank you for visiting my portfolio! 💜
